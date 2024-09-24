@@ -8,4 +8,4 @@ Meu nome é Murilo Marçal
 
 ### Entrar em contato comigo 📮
 
-murilomarcal200808@gmail.com
+murilomarcal3@gmail.com
